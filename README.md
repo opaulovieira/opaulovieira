@@ -1,4 +1,3 @@
-- 👋 Hi, I’m [@o_paulovieira](https://twitter.com/o_paulovieira)
 - 📫 How to reach me: paulovieirasilva.1998@gmail.com
 
 <!---
